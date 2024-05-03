@@ -1,0 +1,1 @@
+Hash of the day project
